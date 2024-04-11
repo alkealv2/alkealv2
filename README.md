@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @alkealv2
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ..
+
