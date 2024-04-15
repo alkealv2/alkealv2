@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @alkealv2
-- 👀 I’m interested in ...
 
