@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @alkealv2
+-  I’m @alkealv2
 
